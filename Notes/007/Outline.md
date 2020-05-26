@@ -82,6 +82,6 @@
 
 ***
 
-# Initial Drawings
+### Initial Drawings
 
 * [Study 008](https://www.instagram.com/p/CAgFAVnAiqQ/)
